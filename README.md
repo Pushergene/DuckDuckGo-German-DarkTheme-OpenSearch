@@ -1,0 +1,1 @@
+# DuckDuckGo-German-DarkTheme-OpenSearch
